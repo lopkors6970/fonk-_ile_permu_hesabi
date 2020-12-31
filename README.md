@@ -1,0 +1,1 @@
+# fonk-_ile_permu_hesabi
